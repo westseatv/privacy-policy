@@ -52,7 +52,7 @@ We may update this Privacy Policy. Your continued use of our app constitutes acc
 
 ### Contact Us
 
-If you have questions or concerns, please contact us at dev4punters@gmail.com.
+If you have questions or concerns, please contact us at zakaweezy@gmail.com.
 
 ### Acceptance
 
